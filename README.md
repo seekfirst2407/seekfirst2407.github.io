@@ -1,1 +1,0 @@
-# seekfirst2407.github.io
